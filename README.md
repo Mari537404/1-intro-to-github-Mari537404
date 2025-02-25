@@ -1,2 +1,3 @@
-![image](https://github.com/user-attachments/assets/afe880b3-a75d-4fa7-b700-d1c2a75ac578)
+![image](https://github.com/user-attachments/assets/67f84ebe-0ac9-41f2-8314-eb60aaa300e5)
+
 https://github.com/Mari537404/mari
